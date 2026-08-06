@@ -1,8 +1,1 @@
-#병신
-#DJBKJBFSFSDJFSBNF
-dbfksdkjfhekbfh kdhfkshf skhdfhsdk
-dsf
-
-sf
-af
-''af
+#김예준 일어나라 
